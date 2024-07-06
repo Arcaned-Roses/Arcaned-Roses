@@ -2,7 +2,7 @@
 - 👀 I’m interested in SFW stuff
 - 🌱 I’m currently learning nothing 
 - 💞️ I’m not looking to collaborate
-- 📫 reach me on C for a comm (25$)
+- 📫 reach me on X for a comm (25$)
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: theres none
 <!---
